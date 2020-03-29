@@ -1,1 +1,1 @@
-# Vershinin-Aleksandr
+# Stepik
